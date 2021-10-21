@@ -1,0 +1,1 @@
+# VetQyzmet_str
